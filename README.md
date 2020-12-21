@@ -1,7 +1,4 @@
 
-<!--
-**Rodrigo-Segui/Rodrigo-Segui** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
 ### Hey, I'm Rodrigo Segui! 👋
 
 🔭 In constant learning <br>
