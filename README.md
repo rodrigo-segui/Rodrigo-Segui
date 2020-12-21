@@ -4,7 +4,7 @@
 🔭 In constant learning <br>
 😄  Computer Engineer student at Federal University of Pampa - [Unipampa](https://unipampa.edu.br/)<br>
 💻 Back-End Developer<br>
-⚡ Fun facts: I enjoy reading and playing baskertball. <br>
+⚡ Fun facts: I enjoy reading and playing basketball. <br>
 🇧🇷 Living in Bagé/Hulha Negra, RS, Brazil <br>
 
 ### Find me elsewhere 🌎
