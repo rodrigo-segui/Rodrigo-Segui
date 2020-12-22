@@ -11,4 +11,4 @@
 
 🐦 [Twitter](https://twitter.com/SeguiAcosta) <br>
 🚀 [LinkedIn](https://www.linkedin.com/in/rodrigoasegui/) <br>
-📸 [Instagram](https://instagram.com/rodrigo_segui//) <br>
+📸 [Instagram](https://instagram.com/rodrigo_segui/) <br>
