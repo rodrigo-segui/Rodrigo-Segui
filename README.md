@@ -11,4 +11,3 @@
 ### Find me elsewhere 🌎
 
 🚀 [LinkedIn](https://www.linkedin.com/in/rodrigoasegui/) <br>
-📸 [Instagram](https://instagram.com/rodrigo_segui/) <br>
